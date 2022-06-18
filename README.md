@@ -1,7 +1,7 @@
 ## Hi, I am Fael! 👻
 
 ## Best cheat for Free Fire and other games!
-[![Discord Banner 2](https://discordapp.com/api/guilds/948332057245925416/widget.png?style=banner2)](discord.gg/cBX8SAtE7N)
+[![Discord Banner 2](https://discordapp.com/api/guilds/948332057245925416/widget.png?style=banner2)](https://discord.gg/cBX8SAtE7N)
 
 ## I'm 15 years old and I'm a game cheat developer!
 -   :thought_balloon: If you need me, contact me on discord: fael#2081
